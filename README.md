@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KittenGoddess
+- 👀 I’m interested in making ideas for others
+- 🌱 I’m currently learning I don't know
+- 💞️ I’m looking to collaborate on Anything easy for my small brain 
+- 📫 How to reach me = You can reach me on Discord - +Kitten+#4531
